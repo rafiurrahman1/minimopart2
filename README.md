@@ -1,1 +1,1 @@
-# minimopart2
+https://rafiurrahman1.github.io/minimopart2/
